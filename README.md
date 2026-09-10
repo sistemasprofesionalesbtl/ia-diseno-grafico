@@ -1,1 +1,0 @@
-# ia-diseno-grafico
